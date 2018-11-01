@@ -29,4 +29,4 @@
 - [6th May 公交百站乐(二)](https://blog.defjia.top/?p=534)
 
 ------
-纪念Defjia和Rebecca的相知之旅
+纪念[Defjia](https://blog.defjia.top)和[Rebecca](https://rebecca.defjia.top)的相知之旅
